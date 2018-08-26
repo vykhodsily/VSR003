@@ -12,7 +12,12 @@ https://www.patreon.com/vykhodsily_podcast
 
 ## Description
 
-TODO
+Vykhod Sily Recordings are pleased to bring you the 3rd release of our Sonic journey. VS003 has been crafted in collaboration by two understated breakbeat heavyweights; Ahmad and Akinsa. With previous collaborative releases on Rupture and Renegade Hardware, in addition to exceptional solo back-catalogues, we are delighted to welcome them to the Vykhod SIly family.
+This two-track EP is laden with instinctively sinister undertones, pulsating basslines and primal grooves driven by two ton kick drums.
+
+Kali immediately sets the tone of the EP with eerie sci-fi soundscapes building tension before rolling out into a thundering assault of breaks, as a haunting cry looms above and an intermittent bassline distorts below.
+
+Monolith harks back to rave and breakbeat culture with menacing mentasms and pitched down bleeps, preceded by off beat hi-hats and industrial fx, emanating in a dark side percussive work out fraught with trepidation and paranoia. 
 
 ## Follow us and artists
 
